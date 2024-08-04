@@ -1,5 +1,4 @@
-Collapse!
-- hi im thenoiseupdate
+- hi im thenoiseupdate but just call me noise
 - once known as nighthack/nightware (im becoming a better person and getting therapy ok)
 - 15 year old (birthday on july 31st)
 - autistic
